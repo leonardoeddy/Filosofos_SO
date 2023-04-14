@@ -41,4 +41,4 @@ ___
 ___
 
 ## <center> Video De Explicación: </center>
-[enlace del video de explicación](https://miucateciedu-my.sharepoint.com/personal/20211188_miucateci_edu_do/_layouts/15/stream.aspx?id=%2Fpersonal%2F20211188%5Fmiucateci%5Fedu%5Fdo%2FDocuments%2FGrabaciones%2FLlamada%20con%20Eddy%20y%201%20m%C3%A1s%2D20230413%5F232027%2DGrabaci%C3%B3n%20de%20la%20reuni%C3%B3n%2Emp4&ga=1)
+[Enlace para el video de la explicación](https://miucateciedu-my.sharepoint.com/personal/20211188_miucateci_edu_do/_layouts/15/stream.aspx?id=%2Fpersonal%2F20211188%5Fmiucateci%5Fedu%5Fdo%2FDocuments%2FGrabaciones%2FLlamada%20con%20Eddy%20y%201%20m%C3%A1s%2D20230413%5F232027%2DGrabaci%C3%B3n%20de%20la%20reuni%C3%B3n%2Emp4&ga=1)
